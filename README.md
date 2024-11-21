@@ -11,8 +11,6 @@
 
 - 📫 How to reach me **sangeetasonal123@gmail.com**
 
-- 📄 Know about my experiences [https://violet-merrill-73.tiiny.site/](https://violet-merrill-73.tiiny.site/)
-
 - ⚡ Fun fact **I am Funny**
 
 <h3 align="left">Connect with me:</h3>
